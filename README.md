@@ -1,6 +1,6 @@
 ![738a13c064089905a6a16ba145f37b3d](https://github.com/user-attachments/assets/10a25c40-7edd-457b-a830-62f44634c51f)
 
-♫ 彡 ' ... *When are you going to look out for me Sebastian?* " - Grell (headcanon)
+♫ 彡 ' ... *When are you going to look out for me, Sebastian?* " - Grell (headcanon)
 
 ☁️ ┊ " Ahem Ahem, enough with the headcanon thing- *That's not really important/hj* Anyway, Here's about me! :
 
