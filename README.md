@@ -2,7 +2,7 @@
 
 ♫ 彡 ' ... *When are you going to look out for me, Sebastian?* " - Grell (headcanon)
 
-☁️ ┊ " Ahem Ahem, enough with the headcanon thing- *That's not really important/hj* Anyway, Here's about me! :
+☁️ ┊ " Ahem Ahem, enough with the headcanon thing- *That's not really important/hj* Anyway, If you're interested on knowing something. Here's about me! :
 
 
 
