@@ -2,10 +2,9 @@
 
 ♫ 彡 ' ... *When are you going to look out for me, Sebastian?* " - Grell (headcanon)
 
-☁️ ┊ " Ahem Ahem, enough with the headcanon thing- *That's not really important/hj* Anyway, If you're interested on knowing something. Here's about me! :
+☁️ ┊ " Ahem Ahem, enough with the headcanon thing- *That's not really important/hj* Anyway, Here's about me! :
 
-
-
+(To those who are interested.)
 - 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ, ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴠ ᴀs ᴡᴇʟʟ! ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. ( "V from murder drones?!" *no*..)
 
 
