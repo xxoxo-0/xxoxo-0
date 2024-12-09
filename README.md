@@ -2,11 +2,11 @@
 
 ♫ 彡 ' ... When are you going to look out for me Sebastian? " - Grell (headcanon)
 
-☁️ ┊ " Ahem, enough with the headcanon thing- Off topic off topic! Here's about me! :
+☁️ ┊ " Ahem Ahem, enough with the headcanon thing- *That's not really important/hj* Anyway, Here's about me! :
 
 
 
-- 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ, ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴠ ᴀs ᴡᴇʟʟ! ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. ( V from murder drones?! /j)
+- 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ, ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴠ ᴀs ᴡᴇʟʟ! ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. ( "V from murder drones?!" no..)
 
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ- ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
