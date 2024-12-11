@@ -17,5 +17,5 @@ Fandom that I mostly like :
 
 Anndd... Yeah, You've reached the *end!* Have a good day-
 
-(Ignore.) - Vyun: "*I like pies/flan*"
+(Ignore.) - Vyun : "*I like pies/flan*"
 Kito : *Shut up*
