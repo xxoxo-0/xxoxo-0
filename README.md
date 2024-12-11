@@ -13,4 +13,9 @@
 - ☁️ ┆ 〖 ' Multi-Fandom guy! I mostly watches animes especially Black Butler :) ┆ ╮ 〗
 
 Fandom that I mostly like :
-- 『 彡 ┆ ☁️ ᯓ *Black Butler, Welcome Home, Threadville, Mouthwashing (except Jim/my.), High rise invasion, Pressure (from roblox, and uhh- A LOT more.* ┆╰ 』
+- 『 彡 ┆ ☁️ ᯓ *Black Butler, Welcome Home, Threadville, Mouthwashing (except Jim/my.), High rise invasion, Pressure (from roblox), and uhh- A LOT more.* ┆╰ 』
+
+Anndd... Yeah, You've reached the *end!* Have a good day-
+
+(Ignore.) - Vyun: "*I like pies/flan*"
+Kito : *Shut up*
