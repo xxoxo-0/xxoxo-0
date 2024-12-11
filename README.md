@@ -9,3 +9,8 @@
 
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
+
+- ☁️ ┆ 〖 ' Multi-Fandom guy! I mostly watches animes especially Black Butler :) ┆ ╮ 〗
+
+***Fandom that I mostly like***
+『 彡 ☁️ ┈┈➤ ᯓ *Black Butler, Welcome Home, Threadville,* ┆╰ -- ッ 』
