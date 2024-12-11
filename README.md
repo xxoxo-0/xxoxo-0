@@ -20,5 +20,5 @@ Anndd... Yeah, You've reached the *end!* Have a good day/night
 ![Screenshot_2024_1109_102035](https://github.com/user-attachments/assets/62cc34dd-d3b2-434c-a142-36584c580ea1)
 
 
-(Ignore.) - Vyun : "*I like pies/flan*"
+(Ignore) - Vyun : "*I like pies/flan*"
 Kito : *Shut up*
