@@ -15,8 +15,8 @@
 Fandom that I mostly like :
 - 『 彡 ┆ ☁️ ᯓ *Black Butler, Welcome Home, Threadville, Mouthwashing (except Jim/my.), High rise invasion, Pressure (from roblox), and A LOT more.* ┆╰ 』
 
-- Things that I DON'T like. :
-☁️〖 ┆ _ *$3xual JOKES!, Problematic People, Even joke skins(from pt), Forcing abt something, Tracing arts etc, Calling me names that aren't close/friends.* ┆ ╯ 〗
+- Things that I DON'T like :
+☁️〖 ┆ _ *$3xual JOKES!, Problematic People, Even joke skins(from pt), Forcing abt something, Tracing arts etc, Calling me names that aren't close/friends.* ┆ ᯓ 〗
 
 Anndd... Yeah, You've reached the *end!* Have a good day/night
 
