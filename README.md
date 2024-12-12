@@ -16,9 +16,9 @@ Fandom that I mostly like :
 - 『 彡 ┆ ☁️ ᯓ *Black Butler, Welcome Home, Threadville, Mouthwashing (except Jim/my.), High rise invasion, Pressure (from roblox), and A LOT more.* ┆╰ 』
 
  Things that I DON'T like (I ignore them if I encounter one.) :
-- ☁️〖 ┆' *$3xual JOKES!, Problematic People, Forcing abt something, P3do, PRO-SHIPPER, Over-Sarcasm, Rude-Persona, Tracing arts etc, Calling me names that aren't close/friends.* ┆ ᯓ 〗
+- ☁️〖 ┆' *$3xual JOKES, Problematic People, Forcing abt somethin, P3do, PRO-SHIPPER, Over-Sarcasm, Rude-Persona, Tracing arts etc, Calling me names that aren't close/friends.* ┆ ᯓ 〗
 
-Anndd... Yeah, You've reached the *end!* Have a good day/night
+Anndd... You've reached the *end!* Have a good day/night.
 
 ![Screenshot_2024_1109_102035](https://github.com/user-attachments/assets/62cc34dd-d3b2-434c-a142-36584c580ea1)
 
