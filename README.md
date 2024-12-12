@@ -10,7 +10,7 @@
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
 
-- ☁️ ┆ 〖 ' Multi-Fandom guy! I mostly watche animes especially Black Butler (･ω･*) ┆ ╮ 〗
+- ☁️ ┆ 〖 ' Multi-Fandom guy! I mostly watch animes especially Black Butler (･ω･*) ┆ ╮ 〗
 
 Fandom that I mostly like :
 - 『 彡 ┆ ☁️ ᯓ *Black Butler, Welcome Home, Threadville, Mouthwashing (except Jim/my.), High rise invasion, Pressure (from roblox), and A LOT more.* ┆╰ 』
