@@ -13,7 +13,7 @@
 - ☁️ ┆ 〖 ' Multi-Fandom guy! I mostly watch animes especially Black Butler (･ω･*) ┆ ╮ 〗
 
 Fandom that I mostly like :
-- 『 彡 ┆ ☁️ ᯓ *Black Butler, Welcome Home, Threadville, Mouthwashing (except Jim/my.), High rise invasion, Pressure (from roblox), and A LOT more.* ┆╰ 』
+- 『 彡 ┆ ☁️ ᯓ *Black Butler, Welcome Home, Threadville, Honkai Star Rail, Mouthwashing (except Jim/my.), High rise invasion, Pressure (from roblox), and A LOT more.* ┆╰ 』
 
  Things that I ***DON'T*** like (Ignores if I encounter one) :
 - *$3xual JOKES, Problematic People, Forcing abt somethin, P3do, PRO-SHIPPER, Over-Sarcasm, Rude-Persona, Interacting when upset, Tracing arts etc, Calling names that aren't close/friends.*
