@@ -26,3 +26,5 @@ Anndd... You've reached the *end!* Have a good day/night.
 (Ignore) 
 Vyun : "*I like pies/flan*"
 Kito : *Shut up*
+
+*Heya Renzi... stalks u back whenever I find youy/jsilly*
