@@ -20,7 +20,7 @@ Stuffs that I ***DON'T*** like (Ignores if I encounter one) :
 
 〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! I don't mind chatting w other friends and um.. A stranger, But I'm *really* awkward to socialize ppl since the day I met them (@・Д・@) 彡 ┆ 〗
 
-Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries..
+- Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries..
 
 ![Screenshot_2024_1109_102035](https://github.com/user-attachments/assets/62cc34dd-d3b2-434c-a142-36584c580ea1)
 
