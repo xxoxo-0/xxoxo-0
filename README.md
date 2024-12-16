@@ -16,7 +16,7 @@ Fandom that I mostly like :
 - 『 彡 ┆ ☁️ ᯓ *Black Butler, Welcome Home, Threadville, Honkai Star Rail, Mouthwashing (except Jim/my.), High rise invasion, Pressure (from roblox), and A LOT more.* ┆╰ 』
 
 Stuffs that I ***DON'T*** like (Ignores if I encounter one) :
-- *$3xual JOKES, Problematic People, Forcing abt somethin, P3do, PRO-SHIPPER, Over-Sarcasm, Rude-Persona, Interacting when upset, Tracing arts etc, Calling names that aren't close/friends.*
+- *$3xual JOKES, Problematic People, Forcing abt somethin, P3do, PRO-SHIPPER, Over-Sarcasm, Rude-Persona, Interacting when upset, Tracing arts/my arts etc, Calling names that aren't close/friends.*
 
 〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! I don't mind chatting w other friends and um.. A stranger, But I'm *really* awkward to socialize ppl since the day I met them (@・Д・@) 彡 ┆ 〗
 
