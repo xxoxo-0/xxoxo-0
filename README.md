@@ -5,7 +5,7 @@
 ☁️ ┊ " An average & unfamous-like artist , cough enough with the headcanon thing. *That's not really important/hj* Anyway, Here's about me! :
 
 (To those who are interested ABOUT getting to know me a bit. /srs)
-- 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ, ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴠ ᴀs ᴡᴇʟʟ! ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. ( "V from murder drones?!" *no*. )
+- 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ, ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴠ ᴀs ᴡᴇʟʟ! ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. ( "V from murder drones?" *no*. )
 
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
