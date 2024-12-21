@@ -26,5 +26,5 @@ Stuffs that I ***DON'T*** like (Ignores if I encounter one) :
 
 
 (Ignore) 
-Vyun : "*I like pies/flan*"
+Vyun : *I like pies/flan*
 Kito : *Shut up*
