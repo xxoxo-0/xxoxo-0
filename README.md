@@ -26,4 +26,4 @@ Stuffs that I ***DON'T*** like (Ignores if I encounter one) :
 
 
 (Ignore) 
-"*I like Grell Sutcliff*" - @Vyunn, "*Mine's Nicolas shut tf up*" - @Kito
+"*I like Grell Sutcliff*" - @Vyun, "*Mine's Nicolas shut tf up*" - @Kito
