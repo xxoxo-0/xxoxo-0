@@ -26,5 +26,4 @@ Stuffs that I ***DON'T*** like (Ignores if I encounter one) :
 
 
 (Ignore) 
-Vyun : *I like pies/flan*
-Kito : *Shut up*
+"*I like Grell Sutcliff*" - @xxoxo-0, "*Mine's Nicolas shut tf up*" - @Kito-unknownperson
