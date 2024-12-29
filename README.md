@@ -18,7 +18,7 @@ Fandom that I mostly like :
 Stuffs that I ***DON'T*** like (Ignores if I encounter one) :
 - *$3xual JOKES, Problematic People, Forcing abt somethin, P3do, PRO-SHIPPER, Over-Sarcasm, Rude-Persona, Interacting when upset, Tracing arts/my arts etc, Calling names that aren't close/friends.*
 
-〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! And all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡 ┆ 〗
+〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! And all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
 
 - Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries..
 
