@@ -7,7 +7,6 @@
 (To those who are interested ABOUT getting to know me a bit. /srs)
 - 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ, ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴠ ᴀs ᴡᴇʟʟ! ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. ( "V from murder drones?" *no*. )
 
-
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
 
 - ☁️ ┆ 〖 ' Multi-Fandom guy! I mostly watch animes especially Black Butler (･ω･*) ┆ ╮ 〗
