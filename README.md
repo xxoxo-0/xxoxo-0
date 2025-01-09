@@ -2,6 +2,8 @@
 
 ♫ 彡 ' ... *When are you going to look out for me, Sebastian?* " - Grell (headcanon)
 
+________________________________
+
 ☁️ ┊ " An average & unknown artist , cough ignore with the headcanon thing/*js havin fun w it*. Anyway, Here's about me! :
 
 (To those who are interested ABOUT getting to know me a bit. /srs)
@@ -28,6 +30,6 @@ Stuffs that I ***DON'T*** like. :
 
 (Ignore) 
 -Pov of Gregory Violet : "*You see what I'm seeing?*"
+__________________________________
 
-+
 "*I like Grell Sutcliff nd Gregory Violet*" - @Vyun, "*Mine's Nicolas Arkham shut tf up*" - @Kito
