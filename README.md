@@ -27,4 +27,7 @@ Stuffs that I ***DON'T*** like. :
 
 
 (Ignore) 
+-Pov of Gregory Violet : "*You see what I'm seeing?*"
+
++
 "*I like Grell Sutcliff nd Gregory Violet*" - @Vyun, "*Mine's Nicolas Arkham shut tf up*" - @Kito
