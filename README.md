@@ -26,4 +26,4 @@ Stuffs that I ***DON'T*** like. :
 
 
 (Ignore) 
-"*I like Grell Sutcliff*" - @Vyun, "*Mine's Nicolas Arkham shut tf up*" - @Kito
+"*I like Grell Sutcliff nd Gregory Violet*" - @Vyun, "*Mine's Nicolas Arkham shut tf up*" - @Kito
