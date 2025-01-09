@@ -22,7 +22,8 @@ Stuffs that I ***DON'T*** like. :
 (ɪ ᴅᴏɴ'ᴛ ᴜsᴜᴀʟʟʏ ᴜsᴇ ɢɪᴛʜᴜʙ ᴀɴᴅ ᴠᴇʀʏ ᴀᴄᴛɪᴠᴇ)
 - Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries..
 
-![Screenshot_2024_1109_102035](https://github.com/user-attachments/assets/62cc34dd-d3b2-434c-a142-36584c580ea1)
+![dd9e98954437a51573ddbf287797b68d](https://github.com/user-attachments/assets/93d3c87a-2eef-4853-892f-75eb6285a802)
+
 
 
 (Ignore) 
