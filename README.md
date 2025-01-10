@@ -21,6 +21,9 @@ Stuffs that I ***DON'T*** like. :
 
 〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! or all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
 
+Some random fictional char note(?):
+- Gregory Violet I kin for him, My personality were close to him and artistic etc/*js wanna expose this dk,*
+
 (ɪ ᴅᴏɴ'ᴛ ᴜsᴜᴀʟʟʏ ᴜsᴇ ɢɪᴛʜᴜʙ ᴀɴᴅ ᴠᴇʀʏ ᴀᴄᴛɪᴠᴇ)
 - Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries..
 
