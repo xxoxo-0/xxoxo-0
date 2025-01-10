@@ -32,4 +32,4 @@ Stuffs that I ***DON'T*** like. :
 -Pov of Gregory Violet : "*You see what I'm seeing?*"
 __________________________________
 
-"*I like Grell Sutcliff nd Gregory Violet*" - @Vyun, "*Mine's Nicolas Arkham shut tf up*" - @Kito
+"*I like Grell Sutcliff nd Gregory Violet*" - @Vyun, "*Mine's Nicolas Arkham nd Ninomiya shut tf up*" - @Kito
