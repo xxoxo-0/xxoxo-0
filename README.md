@@ -25,6 +25,9 @@ Some random fictional char note(?):
 - Gregory Violet is my kin, My personality were close to him and being Gothic, artistic etc! /*js wanna expose this idk,*
 
 (ɪ ᴅᴏɴ'ᴛ ᴜsᴜᴀʟʟʏ ᴜsᴇ ɢɪᴛʜᴜʙ ᴀɴᴅ ᴠᴇʀʏ ᴀᴄᴛɪᴠᴇ)
+
+__________________________________
+
 - Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries..
 
 ![dd9e98954437a51573ddbf287797b68d](https://github.com/user-attachments/assets/93d3c87a-2eef-4853-892f-75eb6285a802)
