@@ -22,7 +22,7 @@ Stuffs that I ***DON'T*** like. :
 〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! or all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
 
 Some random fictional char note(?):
-- Gregory Violet is my kin, My personality were close to him and being Gothic, artistic etc! /*js wanna expose this idk,*
+- Gregory Violet is my kin, My personality were close to him for being Gothic, artistic nd etc! /*js wanna expose this idk,*
 
 (ɪ ᴅᴏɴ'ᴛ ᴜsᴜᴀʟʟʏ ᴜsᴇ ɢɪᴛʜᴜʙ ᴀɴᴅ ᴠᴇʀʏ ᴀᴄᴛɪᴠᴇ)
 
