@@ -7,7 +7,7 @@ ________________________________
 ☁️ ┊ " An average & unknown artist , cough ignore with the headcanon thing/*js havin fun w it*. Anyway, Here's about me! :
 
 (To those who are interested ABOUT getting to know me a bit. /srs)
-- 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ ʏᴜᴊᴊɪ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʏᴜᴊ ғᴏʀ sʜᴏʀᴛ, ᴏɴʟʏ ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ.
+- 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ ʏᴜᴊᴊɪ ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʏᴜᴊ ғᴏʀ sʜᴏʀᴛ, ᴏɴʟʏ ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ.
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
 
