@@ -39,4 +39,4 @@ __________________________________
 *coquette Alucard <3*
 __________________________________
 
-"*I like Grell Sutcliff, Gregory Violet nd Alucard from Castlevania*" - @Vyun, "*Mine's Nicolas Arkham nd Ninomiya shut the fxjck up*" - @Kito (Konight)
+"*I like Grell Sutcliff, Gregory Violet nd Adrian Fahrenheit Tepes*" - @Vyun, "*Mine's Nicolas Arkham nd Ninomiya shut the fxjck up*" - @Kito (Konight🎀)
