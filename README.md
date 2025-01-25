@@ -21,8 +21,8 @@ Stuffs that I ***DON'T*** like. :
 
 〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! or all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
 
-Some random fictional char note(?):
-- Gregory Violet is my kin, My personality were close to him for being Gothic, artistic nd etc! /*js wanna expose this idk,*
+Some random fun fact abt me
+- Gregory Violet is my kin, My personality were close to him for being Gothic, artistic!
 
 (ɪ ᴅᴏɴ'ᴛ ᴜsᴜᴀʟʟʏ ᴜsᴇ ɢɪᴛʜᴜʙ ᴀɴᴅ ᴠᴇʀʏ ᴀᴄᴛɪᴠᴇ)
 
@@ -30,12 +30,13 @@ __________________________________
 
 - Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries..
 
-![dd9e98954437a51573ddbf287797b68d](https://github.com/user-attachments/assets/93d3c87a-2eef-4853-892f-75eb6285a802)
+![eb426ec0488c4829964f42fc185f1904](https://github.com/user-attachments/assets/bbf8e141-832a-4fb3-b706-27c62fdebae6)
+
 
 
 
 (Ignore) 
--Pov of Gregory Violet : "*You see what I'm seeing?*"
+*coquette Alucard <3*
 __________________________________
 
 "*I like Grell Sutcliff, Gregory Violet nd Alucard from Castlevania*" - @Vyun, "*Mine's Nicolas Arkham nd Ninomiya shut the fxjck up*" - @Kito (Konight)
