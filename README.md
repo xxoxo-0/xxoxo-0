@@ -38,4 +38,4 @@ __________________________________
 -Pov of Gregory Violet : "*You see what I'm seeing?*"
 __________________________________
 
-"*I like Grell Sutcliff, Gregory Violet nd Alucard from Castlevania*" - @Vyun, "*Mine's Nicolas Arkham nd Ninomiya shut tf up*" - @Kito (Konight)
+"*I like Grell Sutcliff, Gregory Violet nd Alucard from Castlevania*" - @Vyun, "*Mine's Nicolas Arkham nd Ninomiya shut the fxjck up*" - @Kito (Konight)
