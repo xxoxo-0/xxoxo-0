@@ -19,9 +19,12 @@ Fandom that I mostly like :
 Stuffs that I ***DON'T*** like. :
 - *$3xual JOKES, Problematic People, Forcing abt somethin, P3do, PRO-SHIPPER, Over-Sarcasm, Rude-Persona, Interacting when upset, Tracing arts/my arts etc, COPY/INSPO 1 of my skins on pt, Calling names that aren't close/friends.*
 
+Random note :
+- ... Wondering why my skins from pt are mostly red/brown? Ts because their my fav colors :)!
+
 〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! or all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
 
-Some random fun fact abt me
+Some random fun fact abt me (again)
 - Gregory Violet is my kin, My personality were close to him for being Gothic, artistic!
 
 (ɪ ᴅᴏɴ'ᴛ ᴜsᴜᴀʟʟʏ ᴜsᴇ ɢɪᴛʜᴜʙ ᴀɴᴅ ᴠᴇʀʏ ᴀᴄᴛɪᴠᴇ)
