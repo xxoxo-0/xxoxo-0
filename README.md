@@ -17,7 +17,7 @@ Fandom that I mostly like :
 - 『 彡 ┆ ☁️ ᯓ *Black Butler, Castlevania, Welcome Home, Threadville, High rise invasion, Honkai Star Rail, Pressure (from roblox), and A LOT more.* ┆╰ 』
 
 Stuffs that I ***DON'T*** like. :
-- *$3xual JOKES, Problematic People, Forcing abt somethin, P3do, PRO-SHIPPER, Over-Sarcasm, Rude-Persona, Interacting when upset, Tracing arts/my arts etc, COPY/INSPO 1 of my skins on pt, Calling names that aren't close/friends.*
+- *$3xual JOKES, Problematic People, Forcing abt smth, P3do, PRO-SHIPPER, Over-Sarcasm, Interacting when upset, Tracing arts/my arts etc, COPY/INSPO 1-of my skins on pt, Calling names that aren't close/friends.*
 
 Random note :
 - ... Wondering why my skins from pt are mostly red/brown? Ts because their my fav colors :)!
