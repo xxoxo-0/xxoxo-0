@@ -11,7 +11,7 @@ ________________________________
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
 
-- ☁️ ┆ 〖 ' Multi-Fandom guy! I mostly watch animes especially Black Butler (･ω･*) ┆ ╮ 〗
+- ☁️ ┆ 〖 ' Multi-Fandom guy/dude! ┆ ╮ 〗
 
 Fandom that I mostly like :
 - 『 彡 ┆ ☁️ ᯓ *Black Butler, Castlevania, Welcome Home, Threadville, High rise invasion, Honkai Star Rail, Pressure (from roblox), and A LOT more.* ┆╰ 』
