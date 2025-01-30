@@ -37,4 +37,4 @@ __________________________________
 
 __________________________________
 
-- *You know Kito, After confessing that you're getting tired and bored of me. It hurts me, You were the only person who understands me. I appreciate your kindness in the pass, But I guess I have to let you go now...*
+- *You know Kito, After confessing that you're getting tired and bored our friendship. It hurts me, You were the only person who understands me. I appreciate your kindness in the pass, But I guess I have to let you go now...*
