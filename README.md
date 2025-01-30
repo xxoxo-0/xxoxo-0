@@ -20,9 +20,9 @@ Stuffs that I ***DON'T*** like. :
 - *$3xual J0KES, P3d0 j0k3s, Problematic People, Forcing abt smth, pr0-SH1PP3R, Over-Sarcasm, Interacting when upset, Tracing arts/my arts etc, COPY/INSPO 1-of my skins on pt, Calling names that aren't close/friends.*
 
 Random note :
-- ... Wondering why my skins from pt are mostly red/brown? Ts because their my fav colors :)!
+- ... Wondering why my skins from pt are mostly red/brown? Ts because their my fav colors :D!
 
-〖 ☁️ ᯓ ┆ Mostly stays w my close friend Kito! or all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
+〖 ☁️ ᯓ ┆ Mostly go all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
 
 Some random fun fact abt me (again)
 - Gregory Violet is my kin, My personality were close to him for being Gothic, artistic!
@@ -35,11 +35,6 @@ __________________________________
 
 ![eb426ec0488c4829964f42fc185f1904](https://github.com/user-attachments/assets/bbf8e141-832a-4fb3-b706-27c62fdebae6)
 
-
-
-
-(Ignore) 
-*coquette Alucard <3*
 __________________________________
 
-"*I like Grell Sutcliff, Gregory Violet nd Adrian Fahrenheit Tepes*" - @Vyun, "*Mine's Nicolas Arkham nd Ninomiya shut the fxjck up*" - @Kito (Konight🎀)
+- *You know Kito, After confessing that you're getting tired and bored of me. It hurts me, You were the only person who understands me. I appreciate your kindness in the pass, But I guess I have to let you go now...*
