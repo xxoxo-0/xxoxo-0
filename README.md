@@ -22,7 +22,7 @@ Stuffs that I ***DON'T*** like. :
 Random note :
 - ... Wondering why my skins from pt are mostly red/brown? Ts because their my fav colors :D!
 
-〖 ☁️ ᯓ ┆ Mostly go all alone by myself. I don't mind chatting w other friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
+〖 ☁️ ᯓ ┆ Mostly go all alone by myself. I don't mind chatting w *other* friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
 
 Some random fun fact abt me (again)
 - Gregory Violet is my kin, My personality were close to him for being Gothic, artistic!
@@ -37,4 +37,4 @@ __________________________________
 
 __________________________________
 
-- *You know Kito, After confessing that you're getting tired and bored our friendship. It hurts me, You were the only person who understands me. I appreciate your kindness in the pass, But I guess I have to let you go now...*
+- *Kito if you find me too annoying/clingy, just please ignore me for a little while. Yk I can't control ms sometimes :).*
