@@ -4,7 +4,7 @@
 
 ________________________________
 
-☁️ ┊ " An average & unknown artist , cough ignore with the headcanon thing/*js havin fun w it*. Anyway, Here's about me! :
+☁️ ┊ " An average & unknown artist , cough ignore with the headcanon thing! Anyway, Here's about me! :
 
 (To those who are interested ABOUT getting to know me a bit. /srs)
 - 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ ʏᴜᴊᴊɪ ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʏᴜᴊ ғᴏʀ sʜᴏʀᴛ, ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ.
@@ -22,7 +22,7 @@ Stuffs that I ***DON'T*** like. :
 Random note :
 - ... Wondering why my skins from pt are mostly red/brown? Ts because their my fav colors :D!
 
-〖 ☁️ ᯓ ┆ Mostly go all alone by myself. I don't mind chatting w *other* friends and a stranger I guess, *Socially awkward and will keep silent. (if ur w someone)* 彡┆〗
+〖 ☁️ ᯓ ┆ Mostly go/play all alone by myself. I don't mind chatting w *other* friends and a stranger I guess! I'm friendly and might be also awkward sometimes! (´Д｀。彡┆〗
 
 Some random fun fact abt me (again)
 - Gregory Violet is my kin, My personality were close to him for being Gothic, artistic!
@@ -37,4 +37,8 @@ __________________________________
 
 __________________________________
 
-- *Kito if you find me too annoying/clingy, just please ignore me for a little while. Yk I can't control ms sometimes :).*
+![Untitled29_20250212205354](https://github.com/user-attachments/assets/1bd9980e-87ce-4c0b-b242-360fedaf7a1b)
+
+
+
+this is how my skin supposed to be on roblox but I'm broke af 💔
