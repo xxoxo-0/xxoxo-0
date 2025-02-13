@@ -25,7 +25,7 @@ Random note :
 〖 ☁️ ᯓ ┆ Mostly go/play all alone by myself. I don't mind chatting w friends or even add me! I'm friendly and might be also awkward sometimes! (´Д｀。彡┆〗
 
 Some random fun fact abt me (again)
-- Gregory Violet is my kin, My personality were close to him for being Gothic, artistic!
+- Gregory Violet is my fictkin, My personality were close to him for being Gothic, artistic!
 
 (ɪ ᴅᴏɴ'ᴛ ᴜsᴜᴀʟʟʏ ᴜsᴇ ɢɪᴛʜᴜʙ ᴀɴᴅ ᴠᴇʀʏ ᴀᴄᴛɪᴠᴇ)
 
