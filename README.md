@@ -42,3 +42,6 @@ __________________________________
 
 
 this is how my skin supposed to be on roblox but I'm broke af 💔
+
+(ignore) 
+... Kito, I will be remember you as my closest friend. Thank you for being with me, I just hope you still can archive good things in your life. Please don't expect me to forget you, You're the best person exist to me
