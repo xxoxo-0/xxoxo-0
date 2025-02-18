@@ -47,3 +47,5 @@ this is how my skin supposed to be on roblox but I'm broke af 💔
 ... Kito, I will be remember you as my closest friend. Thank you for being with me, I just hope you still can archive good things in your life. Please don't expect me to forget you, You're the best person exist to me.
 
 I'll be still waiting for you to come back, even it takes a lot of time.
+
+*Or maybe, I give up reaching out for you.*
