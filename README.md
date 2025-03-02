@@ -20,7 +20,7 @@ Stuffs that I ***DON'T*** like. :
 - *$3xual J0KES, P3d0 j0k3s, Problematic People, Forcing abt smth, pr0-SH1PP3R, Over-Sarcasm, Interacting when upset, Tracing arts/my arts etc, COPYING 1-of my skins on pt, Calling names that aren't close/friends.*
 
 Random note :
-- ... Wondering why my skins from pt are mostly red/brown? Ts because their my fav colors :D!
+- ... Wondering why my skins from pt are mostly red/green & brown? That's because their my fav colors :D!
 
 〖 ☁️ ᯓ Mostly goes to play all by myself. I don't mind chatting w friends or even add me! I'm friendly and might be also awkward sometimes (#´Д`) 彡┆〗
 
@@ -42,10 +42,3 @@ __________________________________
 
 
 this is how my skin supposed to be on roblox but I'm broke af 💔
-
-(ignore) 
-... Kito, I will be remember you as my closest friend. Thank you for being with me, I just hope you still can archive good things in your life. Please don't expect me that you're the worst person ever, You're the best person exist to me and even smarter.
-
-I'll be still waiting for you to come back, even it takes a lot of time.
-
-*Or maybe, I give up reaching out for you and just forget you so I won't be hurt anymore.*
