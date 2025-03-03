@@ -7,6 +7,7 @@ ________________________________
 ☁️ ┊ " An average & unknown artist , cough ignore with the headcanon thing. Anyway, Here's about me! :
 
 (To those who are interested ABOUT getting to know me a bit. /srs)
+
 - 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ ʏᴜᴊᴊɪ ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʏᴜᴊ ғᴏʀ sʜᴏʀᴛ, ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. (and no I'm not referring that ONE Yuji, Please stop making fun of it.)
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
