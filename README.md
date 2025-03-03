@@ -4,7 +4,7 @@
 
 ________________________________
 
-☁️ ┊ " An average & unknown artist , cough ignore with the headcanon thing! Anyway, Here's about me! :
+☁️ ┊ " An average & unknown artist , cough ignore with the headcanon thing. Anyway, Here's about me! :
 
 (To those who are interested ABOUT getting to know me a bit. /srs)
 - 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ ʏᴜᴊᴊɪ ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʏᴜᴊ ғᴏʀ sʜᴏʀᴛ, ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. (and no I'm not referring that ONE Yuji, Please stop making fun of it.)
@@ -17,7 +17,7 @@ Fandom that I mostly like :
 - 『 彡 ┆ ☁️ ᯓ *Black Butler, Castlevania, Nanbaka, Welcome Home, Threadville, High rise invasion, Genshin Impact, Honkai Star Rail, Cookie run Kingdom, Pressure (from roblox), and A LOT more.* ┆╰ 』
 
 Stuffs that I ***DON'T*** like. :
-- *$3xual J0KES, P3d0 j0k3s, Problematic People, Forcing abt smth, pr0-SH1PP3R, Over-Sarcasm, Interacting when upset, Tracing arts/my arts etc, COPYING 1-of my skins on pt, Calling names that aren't close/friends.*
+- *$3xual J0KES, P3d0 j0k3s, Problematic People, Forcing abt smth, pr0-SH1PP3R, Over-Sarcasm, Interacting when upset, COPYING 1-of my skins on pt, Calling names that aren't close/friends.*
 
 Random note :
 - ... Wondering why my skins from pt are mostly red/green & brown? That's because their my fav colors :D!
