@@ -8,7 +8,7 @@ ________________________________
 
 (To those who are interested ABOUT getting to know me a bit. /srs)
 
-- 〖 彡 | _ ɴᴀᴍᴇ's ᴠʏᴜɴ ʏᴜᴊᴊɪ ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʏᴜᴊ ғᴏʀ sʜᴏʀᴛ, ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ. (and no I'm not referring that ONE Yuji, Please stop making fun of it.)
+- 〖 彡 | _ ɴᴀᴍᴇ's *Vyun Novien* ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ *Nov* ғᴏʀ sʜᴏʀᴛ, ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ.
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
 
