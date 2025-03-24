@@ -32,14 +32,6 @@ Some random fun fact abt me (again)
 
 __________________________________
 
-- Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries..
-
-![eb426ec0488c4829964f42fc185f1904](https://github.com/user-attachments/assets/bbf8e141-832a-4fb3-b706-27c62fdebae6)
+- Looks like you've reach the end! Can't share more info. Yk, Yk We all have Boundaries.
 
 __________________________________
-
-![Untitled29_20250212205354](https://github.com/user-attachments/assets/1bd9980e-87ce-4c0b-b242-360fedaf7a1b)
-
-
-
-this is how my skin supposed to be on roblox but I'm broke af 💔
