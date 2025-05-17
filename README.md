@@ -8,7 +8,7 @@ ________________________________
 
 (To those who are interested ABOUT getting to know me a bit. /srs)
 
-- 〖 彡 | _ ɴᴀᴍᴇ's *Calzy Novien* ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ *Nov* ғᴏʀ sʜᴏʀᴛ, ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ.
+- 〖 彡 | _ ɴᴀᴍᴇ's *Calzy Novien* ! ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ *Nov or Caz* ғᴏʀ sʜᴏʀᴛ, ɪғ ʏᴏᴜ'ᴅ ᴘʀᴇғᴇʀʀᴇᴅ ᴏɴʟʏ.
 
 - 〖 ┊ ╰ ➤ Pronounciations... ʜᴇ/ʜɪᴍ - ᴛʜᴇʏ/ᴛʜᴇᴍ . ┊ 〗
 
