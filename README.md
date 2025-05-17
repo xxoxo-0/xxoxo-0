@@ -25,8 +25,10 @@ Random note :
 
 〖 ☁️ ᯓ Mostly goes to play all by myself. I don't mind chatting w friends or even add me! I'm friendly and might be also awkward sometimes (#´Д`) 彡┆〗
 
+(Update: apparently I have social anxiety, forgive me if I'm too shy or quiet.)
+
 Some random fun fact abt me (again)
-- Gregory Violet is my fictkin, My personality were close to him for being Gothic, artistic!
+- Idia Shroud is my fictkin! His and I have the almost same personality.
 
 (ɪ ᴅᴏɴ'ᴛ ᴜsᴜᴀʟʟʏ ᴜsᴇ ɢɪᴛʜᴜʙ ᴀɴᴅ ᴠᴇʀʏ ᴀᴄᴛɪᴠᴇ)
 
