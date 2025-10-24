@@ -1,4 +1,4 @@
-uhh idk, I'm too lazy to put something here/j
+uhh idk, I'm too lazy to put something here/lies.
 
 ____________________________________
 
@@ -7,6 +7,6 @@ ____________________________________
 
 ____________________________________
 
-ᯓ ... Ren! I choose you as my imaginary partner!/HVY JOKE.
+ᯓ ... Hello, Call me Caelyz! Nice meeting u here... heh  =͟͟͞͞(꒪ᗜ꒪ ‧̣̥̇)
 
 - I'm too awkward to chat w someone sometimes. smiles
