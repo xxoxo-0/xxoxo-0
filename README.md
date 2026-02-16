@@ -8,6 +8,7 @@ ____________________________________
 ____________________________________
 
 ᯓ ... Hello, Call me Nashoba! Nice meeting u here... heh.. =͟͟͞͞(꒪ᗜ꒪ ‧̣̥̇)
+
 I love designing yes yes
 
 - I'm too awkward to chat w/ someone sometimes. smiles
