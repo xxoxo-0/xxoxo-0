@@ -1,6 +1,6 @@
 !! - I'm not really good at using GitHub, Mostly inactive in here.
 
-Strictly. PLEASE Do NOT take/Copy ANY of my skin, It is my own creation made with passion! Please make one yourself.
+Strictly. PLEASE Do NOT Inspo/Copy ANY of my skin, It is my own creation made with passion! Please make one yourself.
 
 ____________________________________
 
