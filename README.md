@@ -9,7 +9,7 @@ ____________________________________
 
 ____________________________________
 
-ᯓ ... Hello, Call me Nashoba! Nice meeting u here... heh.. =͟͟͞͞(꒪ᗜ꒪ ‧̣̥̇)
+ᯓ ... Hello, Call me Pippin! Nice meeting u here... heh.. =͟͟͞͞(꒪ᗜ꒪ ‧̣̥̇)
 
 
 - I'm too awkward to chat w/ someone sometimes. smiles
