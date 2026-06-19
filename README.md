@@ -1,8 +1,10 @@
 !! - I'm not really good at using GitHub
 
-Strictly. PLEASE Do NOT Inspo/Copy ANY of my skin, It is my own creation made with passion! Please make one yourself.
+Strictly. **PLEASE** Don't Copy ANY of my skin, It is my own creation made with passion! Please make one yourself.
+I'm fine with Inspiration, Everyone gets to admire one to another!
 
 - Also I'm Enthusiastic for Greenapple/Harlecest, Do **NOT** interact with me if you dislike shipping any members!
+- # (Has been 🍏fan around 9/17/2025)
 
 ____________________________________
 
