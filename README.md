@@ -1,4 +1,4 @@
-!! - I'm not really good at using GitHub, Mostly inactive in here.
+!! - I'm not really good at using GitHub
 
 Strictly. PLEASE Do NOT Inspo/Copy ANY of my skin, It is my own creation made with passion! Please make one yourself.
 
@@ -12,4 +12,4 @@ ____________________________________
 ᯓ ... Hello, Call me Pippin! Nice meeting u here... heh.. =͟͟͞͞(꒪ᗜ꒪ ‧̣̥̇)
 
 
-- I'm too awkward to chat w/ someone sometimes. smiles
+- I get easily nervous/anxiety whenever someone comes up to me and talk! I deeply apologize but I had suffered in such issues..
