@@ -4,7 +4,7 @@ Strictly. **PLEASE** Don't Copy ANY of my skin, It is my own creation made with 
 I'm fine with Inspiration, Everyone gets to admire one to another!
 
 - Also I'm Enthusiastic for Greenapple/Harlecest, Do **NOT** interact with me if you dislike shipping any members!
-- # (Has been 🍏fan around 9/17/2025)
+- # (Has been a 🍏 fan around 9/17/2025.)
 
 ____________________________________
 
@@ -13,7 +13,7 @@ ____________________________________
 
 ____________________________________
 
-ᯓ ... Hello, Call me Pippin! Nice meeting u here... =͟͟͞͞(꒪ᗜ꒪ ‧̣̥̇)
+... Hello, Call me Pippin! Nice to see you here... viewing my profile. =͟͟͞͞(꒪ᗜ꒪ ‧̣̥̇)
 
 
 - I get easily nervous/anxiety whenever someone comes up to me and talk! I deeply apologize but I had suffered in such issues..
