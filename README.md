@@ -16,4 +16,4 @@ ____________________________________
 ... Hello, Call me Pippin! Nice to see you here... viewing my profile. =͟͟͞͞(꒪ᗜ꒪ ‧̣̥̇)
 
 
-- I get easily nervous/anxiety whenever someone comes up to me and talk! I deeply apologize but I had suffered in such issues..
+- I get easily nervous/anxiety whenever someone comes up to me and talk! I deeply apologize but I had suffered in so many issues..
